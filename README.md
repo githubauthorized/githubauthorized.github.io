@@ -1,2 +1,2 @@
 # Muhammad Hashim
-CEO at Social Profile Card
+CEO at Quala Solutions
