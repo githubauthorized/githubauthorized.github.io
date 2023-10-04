@@ -1,2 +1,2 @@
 # Muhammad Hashim
-CEO at Quala Solutions
+Founder Aetherium
